@@ -15,3 +15,5 @@ He describes his father as remote, fucked-up, and not around. Odenkirk would lat
 As Bob Odenkirk said:
 > My strongest comedic influence was Monty Python's Flying Circus.
 > Primarily due to its combination of cerebral and simple humor.
+
+<img src="https://c4.wallpaperflare.com/wallpaper/239/282/491/better-call-saul-breaking-bad-wallpaper-preview.jpg"/>
